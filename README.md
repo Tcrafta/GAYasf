@@ -1,2 +1,0 @@
-# GAYasf
-help me out
